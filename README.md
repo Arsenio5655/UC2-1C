@@ -12,7 +12,7 @@
 # Arthur Henrique
 
 Atividade 1: trello (atividade individual)
-()
+(Link: https://trello.com/invite/b/2xwXv7k3/ATTIc56ad48d09b9ce6fbbdcb91f4092ecb63727F7F4/projeto-de-vendas)
 
 Atividade 2: trello 
 
