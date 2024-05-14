@@ -14,6 +14,9 @@
 Atividade 1: trello (atividade individual)
 (Link: https://trello.com/invite/b/2xwXv7k3/ATTIc56ad48d09b9ce6fbbdcb91f4092ecb63727F7F4/projeto-de-vendas)
 
-Atividade 2: trello 
+Atividade 2: trello (atividade em grupo)
+(Link: https://trello.com/invite/b/eNy3YtxT/ATTI970a7e0aee7657a3b03a8e2d6e365bfb5C9100E1/agenda-de-entregas)
 
-Atividade 2: Apresentação sobre linguagem Swith
+Atividade 3: Apresentação sobre linguagem Swith
+(Link: https://www.canva.com/design/DAGE1QmbvAk/JbHnHo2CwcOJXQ7Ftqz6_A/edit?utm_content=DAGE1QmbvAk&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+
