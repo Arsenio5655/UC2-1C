@@ -11,5 +11,9 @@
 
 # Arthur Henrique
 
-Atividade 1: trello
-(grupo)(link)
+Atividade 1: trello (atividade individual)
+()
+
+Atividade 2: trello 
+
+Atividade 2: Apresentação sobre linguagem Swith
