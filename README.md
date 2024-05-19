@@ -20,3 +20,5 @@ Atividade 2: trello (atividade em grupo)
 Atividade 3: Apresentação sobre linguagem Swith
 (Link: https://www.canva.com/design/DAGE1QmbvAk/JbHnHo2CwcOJXQ7Ftqz6_A/edit?utm_content=DAGE1QmbvAk&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
+Atividade 4: Miro (projeto de vendas)
+(Link: https://miro.com/app/board/uXjVKFp9F8E=/ )
