@@ -28,3 +28,6 @@ Atividade 5: Emprego dos sonhos
 
 Atividade 6: Tabela de organização
 (Link: https://docs.google.com/spreadsheets/d/1BkRlFUNYxtm0_etAoy6CSfFopweW-jAJF9gQ-o8Ts9c/edit?usp=sharing )
+
+atividade 7: Pesquisa
+(Link: https://docs.google.com/document/d/1y92NTafzUJ6wvfMJqV3vyv1mXFCDY9FbQFZ3Ycc7mFk/edit?usp=sharing )
